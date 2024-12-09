@@ -1,7 +1,7 @@
-# Our Chief End and Comfort
-- [1. Who is the first and greatest of all beings?](#1-who-is-the-first-and-greatest-of-all-beings)
-- [2. What is the chief end of man?](#2-what-is-the-chief-end-of-man)
-- [3. What is our only comfort in life and death?](#3-what-is-our-only-comfort-in-life-and-death)
+- [Our Chief End and Comfort](#our-chief-end-and-comfort)
+	- [1. Who is the first and greatest of all beings?](#1-who-is-the-first-and-greatest-of-all-beings)
+	- [2. What is the chief end of man?](#2-what-is-the-chief-end-of-man)
+	- [3. What is our only comfort in life and death?](#3-what-is-our-only-comfort-in-life-and-death)
 - [God the Creator](#god-the-creator)
 	- [4. How do we know there is a God?](#4-how-do-we-know-there-is-a-god)
 	- [5. What is the Word of God?](#5-what-is-the-word-of-god)
@@ -113,6 +113,7 @@
 	- [102. How do we glorify God with our vocational fruitfulness?](#102-how-do-we-glorify-god-with-our-vocational-fruitfulness)
 	- [103. How do local churches partner with the whole Church in fulfilling the Great Commission?](#103-how-do-local-churches-partner-with-the-whole-church-in-fulfilling-the-great-commission)
 	- [104. What is our great longing as the Church?](#104-what-is-our-great-longing-as-the-church)
+# Our Chief End and Comfort
 Questions 1-3
 ## 1. Who is the first and greatest of all beings?
 God is the first and greatest of all beings. 
@@ -124,8 +125,6 @@ Man’s chief end is to glorify God and to enjoy him forever.
 > __1 Corinthians 10:31__ So, whether you eat or drink, or whatever you do, do all to the glory of God.
 > __Romans 11:36__ For from him and through him and to him are all things. To him be glory forever. Amen.
 > __Psalm 73:25–28__ Whom have I in heaven but you? And there is nothing on earth that I desire besides you. 26 My flesh and my heart may fail, but God is the strength of my heart and my portion forever. 27 For behold, those who are far from you shall perish; you put an end to everyone who is unfaithful to you. 28 But for me it is good to be near God; I have made the Lord GOD my refuge, that I may tell of all your works.
-> __Psalm 73:25–28__ —   Whom have I in heaven but you? And there is nothing on earth that I desire besides you. 26 My flesh and my heart may fail, but God is the strength of my heart and my portion forever. 27 For behold, those who are far from you shall perish; you put an end to everyone who is unfaithful to you. 28 But for me it is good to be near God; I have made the Lord GOD my refuge, that I may tell of all your works.
-
 ## 3. What is our only comfort in life and death?
 Our only comfort is that we, with body and soul, both in life and death, are not our own, but belong to our faithful Savior Jesus Christ; who, with his precious blood, has fully paid for all our sins, and delivered us from all the power of the devil; and so preserves us that apart from the will of our heavenly Father, not a hair can fall from our heads. Yes, all things must work together for our salvation, and therefore, by his Holy Spirit, he also assures us of eternal life and makes us sincerely willing and ready, from now on, to live for him.
 > __Romans 14:7–8__ For none of us lives to himself, and none of us dies to himself. 8 For if we live, we live to the Lord, and if we die, we die to the Lord. So then, whether we live or whether we die, we are the Lord’s.
