@@ -118,7 +118,9 @@ Questions 1-3
 ## 1. Who is the first and greatest of all beings?
 God is the first and greatest of all beings. 
 > __Psalm 8:1__ O LORD, our Lord, how majestic is your name in all the earth! You have set your glory above the heavens.
-> __Psalm 97:9__ For you, O LORD, are most high over all the earth; you are exalted far above all gods. 
+> 
+> __Psalm 97:9__ For you, O LORD, are most high over all the earth; you are exalted far above all gods.
+> 
 > __Isaiah 44:6__ Thus says the LORD, the King of Israel and his Redeemer, the LORD of hosts: “I am the first and I am the last; besides me there is no god.”
 ## 2. What is the chief end of man?
 Man’s chief end is to glorify God and to enjoy him forever. 
